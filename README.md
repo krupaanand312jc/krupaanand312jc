@@ -1,4 +1,4 @@
-Hi, I am Medapati Krupa Ananda Reddy, pursuing Bachelors in Electrical Engineering in Electrical Engineering at 
+Hi, I am Medapati Krupa Ananda Reddy, pursuing Bachelors in Electrical Engineering in Electrical Engineering at the
 Indian Institute of Engineering Science and Technology (IIEST), Shibpur, Howrah, India. 
 
 <!---
